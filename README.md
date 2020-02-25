@@ -4,4 +4,4 @@
 ![](https://osu.ppy.sh/ss/14096632/2672)
  
 # [ChiroSpiro 2.1 (Akatsuki)](https://morgan.s-ul.eu/UJzmIsLw)
-![](https://osu.ppy.sh/ss/14096660/e821)
+![](https://i.imgur.com/ui7gSr6.jpg)
