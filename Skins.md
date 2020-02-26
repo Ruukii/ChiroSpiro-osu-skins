@@ -5,3 +5,6 @@
  
 # [ChiroSpiro 2.1 (Akatsuki)](https://yurikiosu.s-ul.eu/AKzMsrz7)
 ![](https://i.imgur.com/ui7gSr6.jpg)
+
+# [ChiroSpiro v2)](https://yurikiosu.s-ul.eu/AKzMsrz7)
+![](https://i.imgur.com/1Tqjc2O.jpg)
