@@ -9,7 +9,7 @@
 # [ChiroSpiro v2.1 (Casual)](https://yurikiosu.s-ul.eu/N4o8tini)
 ![](https://i.imgur.com/3F70Udm.jpg)
 
-# [ChiroSpiro v2](https://yurikiosu.s-ul.eu/AKzMsrz7)
+# [ChiroSpiro v2](https://yurikiosu.s-ul.eu/GSF0qZrf)
 ![](https://i.imgur.com/1Tqjc2O.jpg)
 
 # [ChiroSpiro v1](https://yurikiosu.s-ul.eu/HCLCFmLv)
