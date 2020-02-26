@@ -12,3 +12,5 @@
 # [ChiroSpiro v2](https://yurikiosu.s-ul.eu/AKzMsrz7)
 ![](https://i.imgur.com/1Tqjc2O.jpg)
 
+# [ChiroSpiro v1](https://yurikiosu.s-ul.eu/AKzMsrz7)
+![](https://i.imgur.com/y80rp6u.jpg)
