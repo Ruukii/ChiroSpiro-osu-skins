@@ -6,7 +6,7 @@
 # [ChiroSpiro v2.1 (Akatsuki)](https://yurikiosu.s-ul.eu/AKzMsrz7)
 ![](https://i.imgur.com/ui7gSr6.jpg)
 
-# [ChiroSpiro v2.1 (Casual)](https://yurikiosu.s-ul.eu/AKzMsrz7)
+# [ChiroSpiro v2.1 (Casual)](https://yurikiosu.s-ul.eu/N4o8tini)
 ![](https://i.imgur.com/3F70Udm.jpg)
 
 # [ChiroSpiro v2](https://yurikiosu.s-ul.eu/AKzMsrz7)
