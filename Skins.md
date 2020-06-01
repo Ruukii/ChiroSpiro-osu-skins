@@ -1,5 +1,8 @@
 # ChiroSpiro-osu-skins
 # Click on the skin name to install
+# [ChiroSpiro v2.1 (HDHR)](https://drive.google.com/open?id=1TglfuURS4VvbvS9C_Y6gz2bhhUq-K8WE)
+![](https://i.imgur.com/6ZQJkUT.jpg)
+
 # [ChiroSpiro v2.1 (HDHR)](https://yurikiosu.s-ul.eu/0qQ18Kv0)
 ![](https://i.imgur.com/4VYUyBb.jpg)
  
