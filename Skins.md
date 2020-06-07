@@ -13,7 +13,7 @@
 ![](https://i.imgur.com/3F70Udm.jpg)
 
 # [ChiroSpiro v2](https://yurikiosu.s-ul.eu/GSF0qZrf)
-![](https://i.imgur.com/1Tqjc2O.jpg)
+![](https://i.imgur.com/fOqrO75.jpg)
 
 # [ChiroSpiro v1](https://yurikiosu.s-ul.eu/HCLCFmLv)
 ![](https://i.imgur.com/y80rp6u.jpg)
