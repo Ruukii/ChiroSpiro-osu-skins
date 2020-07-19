@@ -1,5 +1,8 @@
 # ChiroSpiro-osu-skins
 # Click on the skin name to install
+# [Konno Yuuki (ChiroSpiro II Edit)](https://drive.google.com/file/d/1CBy7dXIvEBpZ-hxlC1lYvXAxo1yff6YW/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/638321811179962395/734335392593215631/screenshot1823.jpg)
+
 # [Konno Yuuki (ChiroSpiro Edit)](https://drive.google.com/open?id=1TglfuURS4VvbvS9C_Y6gz2bhhUq-K8WE)
 ![](https://i.imgur.com/6ZQJkUT.jpg)
 
