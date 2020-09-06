@@ -1,4 +1,5 @@
 # ChiroSpiro-osu-skins
+# All the skins are listed in orders. Enjoy! ;)
 # Click on the skin name to install
 # [+ LLeNNBattlegrounds + - Chiro Edit III](https://drive.google.com/file/d/1mDUh0CjaJsLTWC-eVJjZcgDKa89nULPz/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/638321811179962395/752156487387709510/LLENN_Chiro_Edit_III.jpg)
