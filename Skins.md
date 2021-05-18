@@ -43,7 +43,7 @@
 # [ChiroSpiro v2.1 (Casual)](https://yurikiosu.s-ul.eu/N4o8tini)
 ![](https://i.imgur.com/3F70Udm.jpg)
 
-# [ChiroSpiro v2] (NOTE: Cursor size set to 0.7x)(https://yurikiosu.s-ul.eu/GSF0qZrf)
+# [ChiroSpiro v2](https://yurikiosu.s-ul.eu/GSF0qZrf) (NOTE: Cursor size set to 0.7x)
 ![](https://i.imgur.com/fOqrO75.jpg)
 
 # [ChiroSpiro v1](https://yurikiosu.s-ul.eu/HCLCFmLv)
