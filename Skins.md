@@ -1,6 +1,19 @@
 # ChiroSpiro osu! Skin Library
+# This includes skins that I use, mixed, handmade(by someone... duhh, ofc i can't make my own due to lack of skills in Photoshop), or partially edited
 # All the skins are listed in orders. Enjoy! ;)
 # Click on the skin name to install
+# [-AmanogawaSaya Chiro's Slightly Edited II](https://drive.google.com/file/d/1P3_0dSpAGETNzZxMGWG8qPpsBGeHC4Qd/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/638321811179962395/853177141462302730/screenshot2176.jpg)
+
+# [-AmanogawaSaya Chiro's Slightly Edited I](https://drive.google.com/file/d/1Bu7v0jAjLpmhHS7pr8oncTeS-dSfe_ee/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/638321811179962395/853178762078060554/screenshot2177.jpg)
+
+# [-AmanogawaSaya](https://drive.google.com/open?id=1ISRJna3rHmjDRy__ACzwYn6ZdLlQjNKm)
+![](https://skins.osuck.net/uploads/posts/2019-11/1574403471_screenshot7093.jpg)
+
+# [Hoshimachi Suisei Kyou mo Kawaii](https://drive.google.com/file/d/1WNy4Gfghj3ZNGSdngv6chELNUZSKEDj9/view?usp=sharing)
+![](https://skins.osuck.net/uploads/posts/2021-03/1617163797_screenshot9857.jpg)
+
 # [+ LLeNNBattlegrounds + - Chiro Edit IV](https://drive.google.com/file/d/1MYIXquk-jeV0pZ6Qm97o70W0RS0UgIRy/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/638321811179962395/844788979895369739/screenshot2159.jpg)
 
