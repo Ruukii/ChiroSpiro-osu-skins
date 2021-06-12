@@ -1,5 +1,5 @@
 # ChiroSpiro osu! Skin Library
-# This includes skins that I use, mixed, handmade(by someone... duhh, ofc i can't make my own due to lack of skills in Photoshop), or partially edited
+# This includes skins that I use, mixed, handmade(by someone... duhh, ofc i can't make my own due to lack of skills in Photoshop), or edited
 # All the skins are listed in orders. Enjoy! ;)
 # Click on the skin name to install
 # [-AmanogawaSaya Chiro's Slightly Edited II](https://drive.google.com/file/d/1P3_0dSpAGETNzZxMGWG8qPpsBGeHC4Qd/view?usp=sharing)
