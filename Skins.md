@@ -2,7 +2,7 @@
 # This includes skins that I use, mixed, handmade(by someone... duhh, ofc i can't make my own due to lack of skills in Photoshop), or edited
 # All the skins are listed in orders. Enjoy! ;)
 # Click on the skin name to install
-# [- -[Project Siesta]- v1.0 (Chiro Edit 4](https://drive.google.com/file/d/1pVMBEKixeKuuQeFSxM11GCp9yKzY22oj/view?usp=sharing)
+# [- -[Project Siesta]- v1.0 (Chiro Edit 4)](https://drive.google.com/file/d/1pVMBEKixeKuuQeFSxM11GCp9yKzY22oj/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/638321811179962395/901062049457639454/screenshot2300.jpg)
 
 # [- -[Project Siesta]- v1.0 (Chiro Edit 3)](https://drive.google.com/file/d/1CkD25OCCA_0JMEQmXYtAbW9Nz1RvOJ_l/view?usp=sharing)
