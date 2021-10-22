@@ -2,10 +2,25 @@
 # This includes skins that I use, mixed, handmade(by someone... duhh, ofc i can't make my own due to lack of skills in Photoshop), or edited
 # All the skins are listed in orders. Enjoy! ;)
 # Click on the skin name to install
-# [-AmanogawaSaya Chiro's Slightly Edited II](https://drive.google.com/file/d/1P3_0dSpAGETNzZxMGWG8qPpsBGeHC4Qd/view?usp=sharing)
+# [- -[Project Siesta]- v1.0 (Chiro Edit 4](https://drive.google.com/file/d/1pVMBEKixeKuuQeFSxM11GCp9yKzY22oj/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/638321811179962395/901062049457639454/screenshot2300.jpg)
+
+# [- -[Project Siesta]- v1.0 (Chiro Edit 3)](https://drive.google.com/file/d/1CkD25OCCA_0JMEQmXYtAbW9Nz1RvOJ_l/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/638321811179962395/901062044554498098/screenshot2299.jpg)
+
+# [- -[Project Siesta]- v1.0 (Chiro Edit 2)](https://drive.google.com/file/d/1EkiB7-V9Esr6I5pybnEmxPj1uNjRrPnH/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/638321811179962395/901062045028474880/screenshot2298.jpg)
+
+# [- -[Project Siesta]- v1.0 (Chiro Edit 1)](https://drive.google.com/file/d/1AO70nfItrTFLtI-r_u4vqsX1PG3EX0VN/view?usp=sharing)
+![](https://cdn.discordapp.com/attachments/638321811179962395/901062041241010206/screenshot2297.jpg)
+
+# [- -[Project Siesta]- v1.0](https://www.reddit.com/r/OsuSkins/comments/ozlfq3/the_detective_is_already_dead_project_siesta_169/)
+![](https://i.imgur.com/rK5dyI6.png)
+
+# [-AmanogawaSaya - Chiro's Slightly Edited II](https://drive.google.com/file/d/1P3_0dSpAGETNzZxMGWG8qPpsBGeHC4Qd/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/638321811179962395/853177141462302730/screenshot2176.jpg)
 
-# [-AmanogawaSaya Chiro's Slightly Edited I](https://drive.google.com/file/d/1Bu7v0jAjLpmhHS7pr8oncTeS-dSfe_ee/view?usp=sharing)
+# [-AmanogawaSaya - Chiro's Slightly Edited I](https://drive.google.com/file/d/1Bu7v0jAjLpmhHS7pr8oncTeS-dSfe_ee/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/638321811179962395/853178762078060554/screenshot2177.jpg)
 
 # [-AmanogawaSaya](https://drive.google.com/open?id=1ISRJna3rHmjDRy__ACzwYn6ZdLlQjNKm)
