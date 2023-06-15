@@ -1,5 +1,5 @@
 # ChiroSpiro osu! Skin Library
-# This includes skins that I use, mixed, handmade(by someone... duhh, ofc i can't make my own due to lack of skills in Photoshop), or edited
+# This includes skins that I use, mixed, handmade(by someone...), or edited
 # All the skins are listed in orders. Enjoy! ;)
 # Click on the skin name to install
 # [- -[Project Siesta]- v1.0 (Chiro Edit 4)](https://drive.google.com/file/d/1pVMBEKixeKuuQeFSxM11GCp9yKzY22oj/view?usp=sharing)
