@@ -2,6 +2,15 @@
 # This includes skins that I use, mixed, handmade(by someone...), or edited
 # All the skins are listed in orders. Enjoy! ;)
 # Click on the skin name to install
+# [+ LLeNNBattlegrounds + - Chiro Edit V2](https://drive.google.com/file/d/1lRxxGLqj2QakbSGNn8ogAhCYH7QZxGub/view?usp=drive_link)
+![](https://cdn.discordapp.com/attachments/638321811179962395/1139920929019940874/screenshot2654.jpg)
+
+# [- -[Project Siesta]- v1.0 (Chiro Edit 6)](https://drive.google.com/file/d/1pkCV6fr_X6Ik9s3s0wbJDMjayyM7zAp0/view?usp=drive_link)
+![](https://cdn.discordapp.com/attachments/638321811179962395/1139922731161354311/screenshot2656.jpg)
+
+# [- -[Project Siesta]- v1.0 (Chiro Edit 5)](https://drive.google.com/file/d/1j_ZVoYezXwuz3h6ctgpzKF5twIvrJUmc/view?usp=drive_link)
+![](https://cdn.discordapp.com/attachments/638321811179962395/1139922730213458031/screenshot2655.jpg)
+
 # [- -[Project Siesta]- v1.0 (Chiro Edit 4)](https://drive.google.com/file/d/1pVMBEKixeKuuQeFSxM11GCp9yKzY22oj/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/638321811179962395/901062049457639454/screenshot2300.jpg)
 
