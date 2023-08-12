@@ -33,10 +33,10 @@
 ![](https://cdn.discordapp.com/attachments/638321811179962395/853178762078060554/screenshot2177.jpg)
 
 # [-AmanogawaSaya](https://drive.google.com/open?id=1ISRJna3rHmjDRy__ACzwYn6ZdLlQjNKm)
-![](https://skins.osuck.net/uploads/posts/2019-11/1574403471_screenshot7093.jpg)
+![](https://cdn.discordapp.com/attachments/638321811179962395/1139923888327897108/screenshot2659.jpg)
 
 # [Hoshimachi Suisei Kyou mo Kawaii](https://drive.google.com/file/d/1WNy4Gfghj3ZNGSdngv6chELNUZSKEDj9/view?usp=sharing)
-![](https://skins.osuck.net/uploads/posts/2021-03/1617163797_screenshot9857.jpg)
+![](https://cdn.discordapp.com/attachments/638321811179962395/1139923638066360380/screenshot2658.jpg)
 
 # [+ LLeNNBattlegrounds + - Chiro Edit IV](https://drive.google.com/file/d/1ypyHevG0F-IBrt415lcsVPnqEvWX-oED/view?usp=sharing)
 ![](https://cdn.discordapp.com/attachments/638321811179962395/844788979895369739/screenshot2159.jpg)
